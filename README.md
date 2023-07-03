@@ -5,3 +5,6 @@
 [Hdmovies2](https://hdmovie2.bid/movies/lust-stories-2-2023-hindi-hd-netflix/)
 
 [hindimoviestv](https://www.hindimoviestv.com/)
+
+
+[lust-stories-2-2023](https://www.hindimoviestv.com/lust-stories-2-2023/)
