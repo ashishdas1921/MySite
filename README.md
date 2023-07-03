@@ -6,5 +6,7 @@
 
 [hindimoviestv](https://www.hindimoviestv.com/)
 
+[hindimoviestv](https://www.hindimoviestv.org/)
+
 
 [lust-stories-2-2023](https://www.hindimoviestv.com/lust-stories-2-2023/)
